@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lqwo
+- 👀 I’m interested in gfx/graphics design
+- 🌱 I’m currently learning 3d modeling
+- 💞️ I’m looking to collaborate on gfx
+- 📫 How to reach me lqwooooooo@gmail.com
